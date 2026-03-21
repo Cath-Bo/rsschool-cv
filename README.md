@@ -1,3 +1,3 @@
 # rsschool-cv
 https://QwakaBraka.github.io/rsschool-cv/cv
-https://QwakaBraka.github.io/rsschool-cv/
+https://Cath-Bo.github.io/rsschool-cv/
